@@ -7,7 +7,7 @@
 <body>
   <h1><a href="https://www.mediafire.com/file/m872dbme6poqycj/Yaong_2017_No_Trail_Edit.osk/file" rel="nofollow"> Yaong 2017 No Trail Edit</a> </h1>
   <p style="font-size: 40px;"> </p>
-<a target="_blank" rel="noopener noreferrer nofollow" href="https://cdn.discordapp.com/attachments/790378298852638750/1149886180872171650/f30e.png"><img src="https://imgur.com/VlUhbBY" alt="screenshot075" style="max-width: 100%;"></a>
+<a target="_blank" rel="noopener noreferrer nofollow" href="https://cdn.discordapp.com/attachments/790378298852638750/1149886180872171650/f30e.png"><img src="https://imgur.com/VlUhbBY.png" alt="screenshot075" style="max-width: 100%;"></a>
 
   <h1><a href="https://www.mediafire.com/file/7rffk4jvw01t3q1/Yaong_2017-08-10.osk/file" rel="nofollow"> Yaong 2017-08-10</a> </h1>
   <p style="font-size: 40px;"> </p>
