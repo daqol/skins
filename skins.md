@@ -11,7 +11,7 @@
 
   <h1><a href="https://www.mediafire.com/file/7rffk4jvw01t3q1/Yaong_2017-08-10.osk/file" rel="nofollow"> Yaong 2017-08-10</a> </h1>
   <p style="font-size: 40px;"> </p>
-<a target="_blank" rel="noopener noreferrer nofollow" href="https://cdn.discordapp.com/attachments/790378298852638750/1149897267495575643/screenshot590.jpg"><img src="https://cdn.discordapp.com/attachments/790378298852638750/1149897267495575643/screenshot590.jpg" alt="screenshot590" style="max-width: 100%;"></a>
+<a target="_blank" rel="noopener noreferrer nofollow" href="https://cdn.discordapp.com/attachments/790378298852638750/1149897267495575643/screenshot590.jpg"><img src="https://imgur.com/a/qlpuuJd.png" alt="screenshot076" style="max-width: 100%;"></a>
 
   <h1><a href="https://www.mediafire.com/file/cjlk1ivinoi5oe5/-_Eunha1.14.osk/file" rel="nofollow"> -Eunha1.14</a> </h1>
   <p style="font-size: 40px;"> </p>
